@@ -2,7 +2,7 @@
 - 👀 I’m interested in MACHINE LEARNING
 - 🌱 I’m currently learning ABOUT ARTIFICIAL INTELLIGENCE AND MACHINE LEARNING
 - 💞️ I’m looking to collaborate on MLDOMAIN
-- 📫 ypu can mail me sarathchandravurity@gmail,com 
+- 📫 you can mail me sarathchandravurity@gmail,com 
 - 😄 Pronouns: SURYA
 - ⚡ Fun fact: EVRYTHING IS EASY 
 
